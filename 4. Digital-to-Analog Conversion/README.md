@@ -1,1 +1,5 @@
-
+![Group05_DataCommunication_G_Exp4Report-images-0](https://github.com/user-attachments/assets/780dbabf-0429-4858-9e6a-f1416a5d98fd)
+![Group05_DataCommunication_G_Exp4Report-images-1](https://github.com/user-attachments/assets/924442c6-caa3-429f-affe-102c6ef43e0e)
+![Group05_DataCommunication_G_Exp4Report-images-2](https://github.com/user-attachments/assets/e0008229-0c94-4125-ad5d-e540c561da49)
+![Group05_DataCommunication_G_Exp4Report-images-3](https://github.com/user-attachments/assets/a2a1f01a-6bbf-4115-852c-b47efb634056)
+![Group05_DataCommunication_G_Exp4Report-images-4](https://github.com/user-attachments/assets/13f67228-c830-4ebb-bb65-528534268aca)
