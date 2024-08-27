@@ -1,1 +1,7 @@
-
+![Coverpage](https://github.com/user-attachments/assets/8ccd1ed2-1de9-43e6-8a90-7ec0ea379a89)
+![Datacom lab 6-images-0](https://github.com/user-attachments/assets/646588c8-2d35-4364-80d1-b58886ddc801)
+![Datacom lab 6-images-1](https://github.com/user-attachments/assets/f96f980c-227d-4898-9c9d-7c665ff4e0c5)
+![Datacom lab 6-images-4](https://github.com/user-attachments/assets/9565daa9-0209-4fa6-b1bc-b543d9c25d02)
+![LabReport6 4-images-1](https://github.com/user-attachments/assets/37eb8758-723e-485f-a94e-b9ff23e7dba9)
+![LabReport6 4-images-2](https://github.com/user-attachments/assets/02631497-9ebb-4fe7-bfb9-f420ed6a6ec0)
+![LabReport6 4-images-3](https://github.com/user-attachments/assets/b7213f68-771d-403d-a324-5aa71ffd0eac)
